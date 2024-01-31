@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on nothing.
 - 📫 How to reach me ... Please don't.
 - 😄 Pronouns: Standard | Sir/Sire
-- ⚡ Fun fact: All the leaves are brown.
+- ⚡ Fun fact: Food tastes often better when hungry.
 
 <!---
 HeinrAd/HeinrAd is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
